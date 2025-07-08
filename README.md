@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **krprashant4b2073@gmail.com**
 
-- 📄 Know about me [https://drive.google.com/file/d/10ZrvTTsNZwTcySSV6I9OHprFrPGuK4mf/view?usp=sharing](https://drive.google.com/file/d/10ZrvTTsNZwTcySSV6I9OHprFrPGuK4mf/view?usp=sharing)
+- 📄 Know about me [[https://drive.google.com/file/d/10ZrvTTsNZwTcySSV6I9OHprFrPGuK4mf/view?usp=sharing](https://drive.google.com/file/d/1Hd26ak3_oZVP-4uVxHtTkYDaE7omV3RE/view?usp=sharing)](https://drive.google.com/file/d/10ZrvTTsNZwTcySSV6I9OHprFrPGuK4mf/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
