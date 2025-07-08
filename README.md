@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://my-portfolio-2-aqiw.onrender.com/](https://my-portfolio-2-aqiw.onrender.com/)
 
-- 📫 How to reach me **krprashant6070@gmail.com**
+- 📫 How to reach me **krprashant4b2073@gmail.com**
 
 - 📄 Know about me [https://drive.google.com/file/d/10ZrvTTsNZwTcySSV6I9OHprFrPGuK4mf/view?usp=sharing](https://drive.google.com/file/d/10ZrvTTsNZwTcySSV6I9OHprFrPGuK4mf/view?usp=sharing)
 
